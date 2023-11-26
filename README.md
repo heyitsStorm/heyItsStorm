@@ -1,7 +1,7 @@
 storm i guess;-;
 ------
 <a href="https://stormlolkk.newgrounds.com/">
-<img src="https://cdn.discordapp.com/attachments/1107115022330642502/1133438905706876988/146832.png" width="150" height="150">
+<img src="https://th.bing.com/th/id/R.086679f016cd0d017b45abb7dbb83e40?rik=Er5xRsmB4geYYA&riu=http%3a%2f%2fwww.newgrounds.com%2fdownloads%2fdesignassets%2fassets%2fng_logo.png&ehk=uEeVeXHensq2AwD%2fdxAmbTuPm0lU2iNEyeZtfNQrfvA%3d&risl=&pid=ImgRaw&r=0" width="150" height="150">
 </a>
 
 <a href="https://twitter.com/HeitorStorm">
